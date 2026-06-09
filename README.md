@@ -1,2 +1,2 @@
-Nhãn điện tử NBC - TH True Milk
+Nhãn điện tử NBC - KAO
 Cr: VuTo
